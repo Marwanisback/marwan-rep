@@ -1,1 +1,7 @@
-# marwan-rep
+Game name :Defend honesty 
+story name :The honest hero
+
+This game has a great story where honesty appears in a bright way of choosing the right path to benefiet the whole community.The game takes place in a strong kingdom where the king of the castle ,Louis,discovered a great material which gave them the power to solve their problems.This matter gave them the power to control the whole world ,so people wanted to get a little bit of this matter to themselves.The king noticed that the number of these people increases everday,so he told his bravest soldier,Adolf, to kill everyone that comes to get his treasure.
+
+Time flies ,people died by thousands ,so the king was happy by that. The soldier was killing people, thinking that he chose the right path .Adolf killed people without minding their lives ,their mindsets,or even their lives that they had in their kingdoms.Adolf did not realize what he was doing untill a man came him and told him about his mindset that revolves around being simple and fair . Adolf  had two choices :to kill the man and follow the king's wrong mindset ,or to follow that man's great advice to not kill people . Adolf ,who chose the right path ,was happy by that decision he made that day.He realised that he had to betray the king to achieve his plan . Adolf was thinking about one thing which was taking this matter from the king to distribute it among all the other kingdoms equally . Adolf did it ,and the king couldn't handle the truth , so he ordered all his other soldiers to find that soldier 
+ 
